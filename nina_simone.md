@@ -1,4 +1,4 @@
-#### 1. Little Girl Blue - Nina Simone
+## 1. Little Girl Blue - Nina Simone
 Sit there and count your fingers
 
 What can you do?
@@ -49,7 +49,7 @@ Why won't somebody send a tender blue boy
 To cheer up little girl blue
 
 
-#### 2. Forbidden Fruit - Nina Simone
+## 2. Forbidden Fruit - Nina Simone
 Eve and Adam had a garden everything was great
 
 Till one day a boy says pardon Miss my name is snake
@@ -125,7 +125,7 @@ You always did it now you'll gonna get it
 Forbidden fruit
 
 
-#### Broadway-Blues-Ballads - Nina Simone
+## Broadway-Blues-Ballads - Nina Simone
 Mr. Backlash, Mr. Backlash
 
 Just who do think I am
@@ -186,7 +186,7 @@ You're the one will have the blues, not me
 Just wait and see
 
 
-#### I put a Spell on you - Nina Simone 
+## I put a Spell on you - Nina Simone 
 I put a spell on you because you're mine
 
 You better stop the things that you do
@@ -221,7 +221,7 @@ I put a spell on you. I put a spell on you
 I put a spell on you. I put a spell on you
 
 
-#### Pastel Blues - Nina Simone 
+## Pastel Blues - Nina Simone 
 Mr. Backlash, Mr. Backlash
 
 Just who do think I am
@@ -359,7 +359,7 @@ Wild is the wind
 Wild is the wind
 
 
-#### High Priestess of Soul - Nina Simone 
+## High Priestess of Soul - Nina Simone 
 This is the end of the line
 
 I've clearly read ever sign
@@ -404,7 +404,7 @@ But this is the end of the line
 
 The end of the line
 
-#### Nina Simone Meet In The Dark
+## Nina Simone Meet In The Dark
 Meet in the dark
 
 Meet in the dark
@@ -510,7 +510,7 @@ I will never get tired of singing these songs
 I will never get tired of singing these songs
 
 
-#### To Love Somebody - Nina Simone 
+## To Love Somebody - Nina Simone 
 There' a light
 
 A certain kind of light
@@ -604,7 +604,7 @@ To love somebody
 The way I love you
 
 
-#### Here Comes the Sun - Nina Simone 
+## Here Comes the Sun - Nina Simone 
 Here comes the sun, little darlin'
 
 Here comes the sun, I say
@@ -693,9 +693,9 @@ You can come on out now
 
 Yes, it's all right, here comes the sun
 
-#### Baltimore - Nina Simone 
+## Baltimore - Nina Simone 
 
-#### A Single Woman - Nina Simone 
+## A Single Woman - Nina Simone 
 I live alone.
 
 That hasn't always been easy to do.
@@ -728,7 +728,7 @@ Just to help along,
 
 One single Woman.
 
-#### Gifted & Black - Nina Simone 
+## Gifted & Black - Nina Simone 
 Young, gifted and black
 
 Oh what a lovely precious dream
@@ -786,7 +786,7 @@ Is where it's at
 
 Is where it's at
 
-#### Feels Good - Nina Simone 
+## Feels Good - Nina Simone 
 Birds flying high you know how I feel
 
 Sun in the sky you know how I feel
@@ -857,7 +857,7 @@ For me
 
 And I'm feeling good
 
-#### Sinnerman - Nina Simone 
+## Sinnerman - Nina Simone 
 Think you're runnin' to?
 
 Think you're runnin' to?
@@ -954,9 +954,9 @@ Oh sinnerman, think you're runnin' to?
 
 Sinnerman, where you gonna run to?
 
-#### My Baby Just Cares for Me - Nina Simone 
+## My Baby Just Cares for Me - Nina Simone 
 
-#### No Opportunity Necessary, No Experience Needed - Nina Simone 
+## No Opportunity Necessary, No Experience Needed - Nina Simone 
 Yes
 
 ​
@@ -1041,7 +1041,7 @@ She won't believe
 
 The real trick of life we all know
 
-#### Who Knows Where the Time Goes- Nina Simone 
+## Who Knows Where the Time Goes- Nina Simone 
 
 (1966) Sandy Denny
 
@@ -1087,7 +1087,7 @@ For who knows how my love grows?
 
 And who knows where the time goes?
 
-#### Whatever I Am - Nina Simone 
+## Whatever I Am - Nina Simone 
 Lead me on girl if you want
 
 Take my heart and my love
@@ -1145,7 +1145,7 @@ Whenever, wherever, whatever baby
 
 Whenever, wherever, whatever
 
-#### Ain't Got No, I Got Life - Nina Simone 
+## Ain't Got No, I Got Life - Nina Simone 
 I ain't got no home, ain't got no shoes
 
 Ain't got no money, ain't got no class
@@ -1226,7 +1226,7 @@ And nobody's gonna take it away
 
 I've got the life
 
-#### Day and Night - Nina Simone 
+## Day and Night - Nina Simone 
 When you like a fella
 
 Try to treat him right
@@ -1293,7 +1293,7 @@ And he's got you uptight
 
 Shower him with kisses day and night
 
-#### Don't You Pay Them No Mind - nina simone 
+## Don't You Pay Them No Mind - nina simone 
 People laugh each time they see us walking by and their whispering just make
 
 You feel like you wanna cry. Keep on walking by my side don't look behind. You
@@ -1321,7 +1321,7 @@ Time. I really love you, so don't you pay em' no mind. You know I love you, you
 Know I can't be without you
 
 
-#### I Am Blessed - Nina Simone 
+## I Am Blessed - Nina Simone 
 Here in the silence, I say a prayer
 
 Though I've never seen you, somehow I know you're there
