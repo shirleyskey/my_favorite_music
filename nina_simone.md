@@ -187,38 +187,69 @@ Just wait and see
 
 
 ## I put a Spell on you - Nina Simone 
-I put a spell on you because you're mine
+I put a spell on you
 
-You better stop the things that you do
+Because you're mine
 
-I ain't lyin', no, I ain't lyin'
+You better stop the things you do
 
-I just can't stand it babe
+I tell you, I ain't lying
 
-The way you're always runnin' 'round
+I ain't lying
 
-I just can't stand it, the way you always put me down
+You know I can't stand it
 
-I put a spell on you because you're mine
+You're running around
 
+You know better daddy
 
-I put a spell on you because you're mine
+I can't stand it 'cause you put me down
 
-You better stop the things that you do
+Oh, no
 
-I ain't lyin', no, I ain't lyin'
+I put a spell on you
 
-I just can't stand it babe
+Because you're mine
 
-The way you're always runnin' 'round
+You know I love you
 
-I just can't stand it, the way you always put me down
+I love you
 
-I put a spell on you because you're mine
+I love you
 
-I put a spell on you. I put a spell on you
+I love you anyhow
 
-I put a spell on you. I put a spell on you
+And I don't care
+
+If you don't want me
+
+I'm yours right now
+
+I put a spell on you
+
+Because you're mine
+
+You know I can't stand it
+
+You're running around
+
+You know better daddy
+
+I can't stand it 'cause you put me down
+
+Ooh-hoo-ooh
+
+I put a spell on you
+
+Because you're mine
+
+Because you're mine
+
+Because you're mine
+
+Oh
+
+Yeah
 
 
 ## Pastel Blues - Nina Simone 
