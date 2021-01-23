@@ -907,8 +907,344 @@ And the time will come when you see
 We're all one and life flows on within you and without you
 
 
-## 13. 
+## 13. Don't Let Me Down
+Don't let me down
 
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+
+Nobody ever loved me like she does
+
+Oh, she does, yes she does
+
+And if somebody loved me like she do me
+
+Oh, she do me, yes she does
+
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+
+I'm in love for the first time
+
+Don't you know it's gonna last
+
+It's a love that lasts forever
+
+It's a love that had no past
+
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+
+And from the first time that she really done me
+
+Oh she done me, she done me good
+
+I guess nobody ever really done me
+
+Oh she done me, she done me good
+
+
+Don't let me down
+
+Hey, don't let me down
+
+Don't let me down
+
+Don't let me down
+
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+Don't let me down
+
+## 14. The Ballad Of John And Yoko
+Standing in the dock at Southampton
+
+Trying to get to Holland or France
+
+The man in the mac said
+
+"You've got to go back."
+
+You know, they didn't even give us a chance
+
+
+Christ, you know it ain't easy
+
+You know how hard it can be
+
+The way things are going
+
+They're going to crucify me
+
+
+Finally made the plane into Paris
+
+Honeymooning down by the Seine
+
+Peter Brown called to say
+
+You can make it okay
+
+You can get married in Gibraltar near Spain
+
+
+Christ, you know it ain't easy
+
+You know how hard it can be
+
+The way things are going
+
+They're going to crucify me
+
+
+Drove from Paris to the Amsterdam Hilton
+
+Talking in our beds for a week
+
+The news people said
+
+"Say, what you doing in bed?"
+
+I said, "We're only trying to get us some peace"
+
+
+Christ, you know it ain't easy
+
+You know how hard it can be
+
+The way things are going
+
+They're going to crucify me
+
+
+Saving up your money for a rainy day
+
+Giving all your clothes to charity
+
+Last night the wife said
+
+"Oh boy, when you're dead
+
+You don't take nothing with you but your soul
+
+Think!"
+
+​
+Made a lightning trip to Vienna
+
+Eating chocolate cake in a bag
+
+Newspapers said
+
+"She's gone to his head.
+
+They look just like two gurus in drag."
+
+
+Christ, you know it ain't easy
+
+You know how hard it can be
+
+The way things are going
+
+They're going to crucify me
+
+
+Caught the early plane back to London
+
+Fifty acorns tied in a sack
+
+The men from the press
+
+Said, "We wish you success.
+
+It's good to have the both of you back."
+
+
+Christ, you know it ain't easy
+
+You know how hard it can be
+
+The way things are going
+
+They're going to crucify me
+
+The way things are going
+
+They're going to crucify me
+
+## 15. The Night Before
+We said our goodbyes
+
+On the night before
+
+Love was in your eyes
+
+On the night before
+
+Now today I find
+
+You have changed your mind
+
+Treat me like you did the night before
+
+ 
+Were you telling lies
+
+On the night before?
+
+Was I so unwise
+
+On the night before?
+
+When I held you near
+
+You were so sincere
+
+Treat me like you did the night before
+
+ 
+Last night is a night I will remember you by
+
+When I think of things we did
+
+It makes me wanna cry
+
+ 
+We said our goodbye
+
+On the night before
+
+Love was in your eyes
+
+On the night before
+
+Now today I find
+
+You have changed your mind
+
+Treat me like you did the night before
+
+ 
+When I held you near
+
+You were so sincere
+
+Treat me like you did the night before
+
+ 
+Last night is a night I will remember you by
+
+When I think of things we did
+
+It makes me wanna cry
+
+ 
+Were you telling lies
+
+On the night before?
+
+Was I so unwise
+
+On the night before?
+
+ 
+When I held you near
+
+You were so sincere
+
+Treat me like you did the night before
+
+## 16. Got to Get You Into My Life
+I was alone, I took a ride
+
+I didn't know what I would find there
+
+Another road where maybe I could see another kind of mind there
+
+ 
+Ooh, then I suddenly see you
+
+Ooh, did I tell you I need you
+
+Every single day of my life
+
+ 
+You didn't run, you didn't lie
+
+You knew I wanted just to hold you
+
+And had you gone you knew in time we'd meet again
+
+For I had told you
+
+ 
+Ooh, you were meant to be near me
+
+Ooh, and I want you hear me
+
+Say we'll be together every day
+
+ 
+Got to get you into my life
+
+ 
+What can I do, what can I be
+
+When I'm with you I want to stay there
+
+If I'm true I'll never leave
+
+And if I do I know the way there
+
+ 
+Ooh, then I suddenly see you
+
+Ooh, did I tell you I need you
+
+Every single day of my life
+
+ 
+Got to get you into my life
+
+Got to get you into my life
+
+ 
+I was alone, I took a ride
+
+I didn't know what I would find there
+
+Another road where maybe I could see another kind of mind there
+
+ 
+Then suddenly I see you
+
+Did I tell you I need you
+
+Every single day?
 
 
 
